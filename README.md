@@ -2,7 +2,7 @@
 
 **Name:** Shadaï ALI
 
-**Google Plus** https://plus.google.com/u/0/+shada%C3%AFALI
+**Linkedin** https://www.linkedin.com/in/shadai-ali
 
 **Twitter:** https://twitter.com/shadai_ali
 
